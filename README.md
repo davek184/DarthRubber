@@ -3,6 +3,8 @@ Darth Rubber Topre Ornament from PCB.
 
 Origianl artwork from 23_Andreas who graciously okayed using it for this project.
 
+Samples ordered Nov 29, 2022 will update with photo when it arrives
+
 Size: About 45mm x 45mm
 
 Ornament
